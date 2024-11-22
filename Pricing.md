@@ -1,4 +1,4 @@
-Pricing your course depends on several factors, including your target audience, the value provided, market competition, and delivery format (self-paced vs. live sessions). Here’s a suggested pricing strategy based on these factors:
+Pricing depends on several factors, including your target audience, the value provided, market competition, and delivery format (self-paced vs. live sessions). Here’s a suggested pricing strategy based on these factors:
 
 ---
 
